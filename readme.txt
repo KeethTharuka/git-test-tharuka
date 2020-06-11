@@ -1,9 +1,3 @@
-wefwfjwfwjfo
-rgaerg;eom'e]
-kaegorpgkearopg
-QWDUQHWDHUNQD
 
-AKNKNMADM;LM
-mWEKFMKIWEFM
-ewfmiewjfijweqkf
-wpfokwlef,;w,ef
+
+Hello There I'm Tharuka. Welcome to git-hub desktop.
